@@ -1,0 +1,5 @@
+# cv
+My curriculum vitae
+I   am diligent, faithful, hardworking and dedicated person. I   am  innovative   and  skillful  in  giving  the  right  advice  in  the  best  of  my  knowledge  . I  also  believe  in  transparency  ,openness  , change ,and  embrace  dynamism  while  acquiring  and  integrating  new knowledge , skills ,and  ideas  for  performance improvement , growing  new  opportunities   as  well  as corporate  social  responsibility . I am  humble  and  flexible  to work  with  everybody   in  the  organization  as  well  as  adapting  to  different   working  conditions  and  environments .
+
+I learn  of  my  own  mistakes  and  work  hard  to  correct  them  and  avoid  them  next  time. I  look  forward  to  become  an   individual  with considerable  planning ,implementation  and  monitoring   skills  executed  with  great  confidence  and  enthusiasm  with  an  all-time  objective  of  excellence  and  effective  delivery  and  maintaining  good  relationship  among  all  the  organizations   stakeholders .
